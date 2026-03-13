@@ -53,4 +53,4 @@ For inquiries: info@a4ai.ca
 
 ## License
 
-© 2024 A4AI.ca - All Rights Reserved
+© 2026 A4AI.ca - All Rights Reserved
